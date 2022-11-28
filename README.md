@@ -1,1 +1,1 @@
-# philipsdsff-philipsdsff-KS_online_embedded_diploma
+# philips-KS_online_embedded_diploma
